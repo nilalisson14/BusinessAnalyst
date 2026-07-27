@@ -10,4 +10,4 @@ Analista de Sistemas com ênfase em Engenharia de Requisitos (9+ anos). Cases re
 
 👉 Choose your language above / Escolha o idioma acima.
 
-🌐 [nilalisson.com.br](https://nilalisson.com.br) · 💼 [linkedin.com/in/nilalisson](https://linkedin.com/in/nilalisson)
+🌐 [nilalisson.com.br/ba](https://nilalisson.com.br/ba) · 💼 [linkedin.com/in/nilalisson](https://linkedin.com/in/nilalisson)
